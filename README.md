@@ -1,2 +1,4 @@
 # hello-world
 The first task in CBC
+
+The best things in life are indeed free.  Laughing is free.  Singing is free.  Enjoying the company of others you love is free. This is why it's said that "money cant by you love".  Love is free, it costs no money.  The time we take to cheer and encourage others stuffs our moral bank account.  We need as much in this accoun as possible.  Life inevitably makes demands of us which rob us of our moral substance.  It is during these times that we much dig deep, reach low and make a withdrawal.  In the event that we do not have enough "currency" on hand we may become morally bankrupt.  This would be a desaster.  Unfortuanely, most morally bankrupt people don't yet realize their precarious state.  They go on living as though all others are sick, when in reality, they are the ones who are sick.
